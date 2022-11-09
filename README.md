@@ -23,4 +23,4 @@
 
  
 
-* :flying_saucer: mail - heloise.lopez1995@gmail.com
+* :e-mail: mail - heloise.lopez1995@gmail.com
